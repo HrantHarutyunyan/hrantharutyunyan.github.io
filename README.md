@@ -1,1 +1,0 @@
-# hrantharutyunyan.github.io
